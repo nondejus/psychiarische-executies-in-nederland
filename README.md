@@ -1,1 +1,0 @@
-# nekshot-vs-aderlating
